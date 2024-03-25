@@ -1,1 +1,0 @@
-# Calculadora Jocais Ampudia
